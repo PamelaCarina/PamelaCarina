@@ -2,15 +2,15 @@
 
 ### I'm Pam ✨
 
-🎓 **Computer Engineering Student**
-🤖 I love building projects with **robots**
-💻 **Web development** is one of my biggest passions
+🎓 **Computer Engineering Student**</br>
+🤖 I love building projects with **robots**</br>
+💻 **Web development** is one of my biggest passions</br>
 
 ---
 
 ### 🎥 I also create content on:
-- 📸 [**Instagram**](https://www.instagram.com/_l.ittlethings/)
-- 🎵 [**Tiktok**](https://www.tiktok.com/@_pamecita)
+- 📸 [**Instagram**](https://www.instagram.com/_l.ittlethings/)</br>
+- 🎵 [**Tiktok**](https://www.tiktok.com/@_pamecita)</br>
 
 ---
 
@@ -22,15 +22,15 @@ Thanks for stopping by! 🌸
 
 ### Me llamo Pam ✨
 
-🎓 **Estudiante de Ingeniería Civil Informática**
-🤖 Me encanta crear proyectos con **robots**
-💻 El **Desarrollo web** es una de mis pasiones
+🎓 **Estudiante de Ingeniería Civil Informática**</br>
+🤖 Me encanta crear proyectos con **robots**</br>
+💻 El **Desarrollo web** es una de mis pasiones</br>
 
 ---
 
 ### 🎥 También creo contenido en:
-- 📸 [**Instagram**](https://www.instagram.com/_l.ittlethings/)
-- 🎵 [**Tiktok**](https://www.tiktok.com/@_pamecita)
+- 📸 [**Instagram**](https://www.instagram.com/_l.ittlethings/)</br>
+- 🎵 [**Tiktok**](https://www.tiktok.com/@_pamecita)</br>
 
 ---
 
