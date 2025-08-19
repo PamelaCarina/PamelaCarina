@@ -9,8 +9,8 @@
 ---
 
 ### 🎥 I also create content on:
-- 📸 [**Instagram**](https://www.instagram.com/_l.ittlethings/)</br>
-- 🎵 [**Tiktok**](https://www.tiktok.com/@_pamecita)</br>
+- 📸 [**Instagram**](https://www.instagram.com/chica.robotica/)</br>
+- 🎵 [**Tiktok**](https://www.tiktok.com/@chica.robotica)</br>
 
 ---
 
@@ -29,8 +29,8 @@ Thanks for stopping by! 🌸
 ---
 
 ### 🎥 También creo contenido en:
-- 📸 [**Instagram**](https://www.instagram.com/_l.ittlethings/)</br>
-- 🎵 [**Tiktok**](https://www.tiktok.com/@_pamecita)</br>
+- 📸 [**Instagram**](https://www.instagram.com/chica.robotica/)</br>
+- 🎵 [**Tiktok**](https://www.tiktok.com/@chica.robotica)</br>
 
 ---
 
